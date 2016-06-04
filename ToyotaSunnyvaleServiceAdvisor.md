@@ -2,55 +2,100 @@ To:
 Gene Ramirez, Service Manager, Toyota Sunnyvale
 
 Cc:
-Mike Shum, General Manager, Toyota Sunnyvale 
+Mike Shum, General Manager, Toyota Sunnyvale
 Takeshi Uchiyamada, Chairman of the Board of Directors, Toyota Group 
 Akio Toyoda, President, Member of the Board of Directors, Toyota Group 
 Nobuyori Kodaira, Executive Vice President, Member of the Board of Directors, Toyota Group 
 Mitsuhisa Kato, Executive Vice President, Member of the Board of Directors, Toyota Group 
+
 Seiichi Sudo, Executive Vice President, Member of the Board of Directors, Toyota Group 
+
 Takahiko Ijichi, Executive Vice President, Member of the Board of Directors, Toyota Group 
+
 Didier Leroy, Executive Vice President, Member of the Board of Directors, Toyota Group
+
 Shigeki Terashi, Executive Vice President, Member of the Board of Directors, Toyota Group
+
 Shigeru Hayakawa, Member of the Board of Directors, Toyota Group
+
 Ikuo Uno, Member of the Board of Directors, Toyota Group
+
 Haruhiko Kato, Member of the Board of Directors, Toyota Group
+
 Mark T. Hogan, Member of the Board of Directors, Toyota Group
+
 Masaki Nakatsugawa, Audit & Supervisory Board Member, Toyota Group
+
 Masahiro Kato, Audit & Supervisory Board Member, Toyota Group
+
 Yoshiyuki Kagawa, Audit & Supervisory Board Member, Toyota Group
+
 Yoko Wake, Audit & Supervisory Board Member, Toyota Group
+
 Teisuke Kitayama, Audit & Supervisory Board Member, Toyota Group
+
 Hiroshi Ozu, Audit & Supervisory Board Member, Toyota Group
+
 Hirofumi Muta, Senior Managing Officer, Toyota Group
+
 Shigeru Hayakawa, Senior Managing Officer, Toyota Group
+
 Keiji Masui, Senior Managing Officer, Toyota Group
+
 Hiroji Onishi, Senior Managing Officer, Toyota Group
+
 Koei Saga, Senior Managing Officer, Toyota Group
+
 Tokuo Fukuichi, Senior Managing Officer, Toyota Group
+
 Kiyotaka Ise, Senior Managing Officer, Toyota Group
+
 James E. Lentz, Senior Managing Officer, Toyota Group
+
 Soichiro Okudaira, Senior Managing Officer, Toyota Group
+
 Moritaka Yoshida, Senior Managing Officer, Toyota Group
+
 Mitsuru Kawai, Senior Managing Officer, Toyota Group
+
 Kazuhiro Miyauchi, Senior Managing Officer, Toyota Group
+
 Toshiyuki Mizushima, Senior Managing Officer, Toyota Group
+
 Osamu Nagata, Senior Managing Officer, Toyota Group
+
 Shigeki Tomoyama, Senior Managing Officer, Toyota Group
+
 Steve St. Angelo, Senior Managing Officer, Toyota Group
+
 Johan van Zyl, Managing Officer, Toyota Group
+
 Kazuhiro Kobayashi, Managing Officer, Toyota Group
+
 Kazuo Ohara, Managing Officer, Toyota Group
+
 Riki Inuzuka, Managing Officer, Toyota Group
+
 Shinji Kitada, Managing Officer, Toyota Group
+
 Masahisa Nagata, Managing Officer, Toyota Group
+
 Hayato Shibakawa, Managing Officer, Toyota Group
+
 Shinya Kotera, Managing Officer, Toyota Group
+
 Tetsuya Otake, Managing Officer, Toyota Group
+
 Kazuhiro Sato, Managing Officer, Toyota Group
+
 Tatsuro Takami, Managing Officer, Toyota Group
+
 Kyoichi Tanada, Managing Officer, Toyota Group
+
 Tatsuro Ueda, Managing Officer, Toyota Group
+
 Hiroyuki Fukui, Managing Officer, Toyota Group
+
 Hiroki Nakajima, Managing Officer, Toyota Group
 
 I am writing to inform you of the negative experience I had at the service department this morning (June 3rd, 2016) at Sunnyvale Toyota, the Toyota dealership in Sunnyvale, California. I arrived at the dealership for my scheduled appointment at about 8:30 am. The line to checkin extended out of the service department, down the driveway, and out onto Sunnyvale Road. When I joined the line there were five cars ahead of me on the street, four in the driveway leading into the service bay, and six more cars in the bay where service advisors were receiving customers. I was dropping off my Highlander to have a recalled part replaced on my way to work. Most people were probably on their way to work. My time is valuable, and time was of the essence. It seemed to be a busy morning at Sunnyvale Toyota. I had waited in line on Sunnyvale Road for about 25 minutes and was two cars from entering the driveway when a white Matrix S (see attached photo) drove past everyone lined up on Sunnyvale Road and cut in front of the Sienna just ahead of me. After about another 10 minutes, the line advanced, and I was in service bay ready to be checked in. Displeased with what the driver of the white Matrix had done, I informed the first employee I saw that the Matrix, now parked next to me, had cut into the line ahead of several cars. The employee dismissed my complaint, and went about his business noting license plate numbers and placing service tags on windshields. Then service advisor “Hector" approached the white Matrix and proceeded to checkin the customer. I approached Hector and informed him that his customer had cut in front of everyone and that the driver should go to the end of the line of cars backed up on Sunnyvale Road. The driver of the white Matrix claimed that she didn’t know that she had cut in front of anyone, she said that she was in a hurry, and said that she could re-schedule her service appointment. Hector dismissed my complaint and checked in the customer, business as usual. When I finished checking in my car and headed out to walk to my office. Cars were still lined up along the road in front of the dealership. In addition to the cars in the bay and driveway, there were now about 7 cars backed up on Sunnyvale Road waiting to meet with advisors.
