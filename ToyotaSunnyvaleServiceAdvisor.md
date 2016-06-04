@@ -3,9 +3,13 @@ Gene Ramirez, Service Manager, Toyota Sunnyvale
 
 Cc:
 Mike Shum, General Manager, Toyota Sunnyvale
+
 Takeshi Uchiyamada, Chairman of the Board of Directors, Toyota Group 
+
 Akio Toyoda, President, Member of the Board of Directors, Toyota Group 
+
 Nobuyori Kodaira, Executive Vice President, Member of the Board of Directors, Toyota Group 
+
 Mitsuhisa Kato, Executive Vice President, Member of the Board of Directors, Toyota Group 
 
 Seiichi Sudo, Executive Vice President, Member of the Board of Directors, Toyota Group 
